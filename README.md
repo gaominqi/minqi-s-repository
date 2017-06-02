@@ -1,1 +1,0 @@
-# minqi-s-repository
